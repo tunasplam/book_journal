@@ -1,4 +1,5 @@
 # Kafka on the Shore
+## First Vintage International Edition, 2006.
 
 ## Summary
 A boy runs away from home, an autistic man has a complicated back story, and everyone goes on a wild journey that walks along the border of reality (and occasionally dips slightly outside of it).
@@ -7,8 +8,6 @@ A boy runs away from home, an autistic man has a complicated back story, and eve
 This was a great book. Another prime example of the light-surrealist/magical realism that Murakami specializes in. As usual, semiotics is a key component of the story although not as much as some of his other works like Sputnik Sweetheart of Wonderland. The novel starts slow but really immerses you into the world that the characters live in. Once plotlines start tying together, the pace picks up and its difficult to put the book down. Conversations with Oshima are very fascinating and provide great connections to explore. One thing I wonder about Murakami is if he has intended messages in his novels or if he leaves the messages intentionally vague to allow people to draw the conclusions that they feel like they need. In this sense, these novels feel somewhat like esoteric religious texts.
 
 ## Notable Quotes/Passages
-
-Page numbers are the First Vintage International Edition, 2006. 
 
 ### 1. Responsibility extends to our dreams and imagination
 
