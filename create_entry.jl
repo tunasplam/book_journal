@@ -1,1 +1,0 @@
-# Create the templates. TODO maybe add a themes section
